@@ -19,7 +19,7 @@ The course provided me with hands-on experience in **data collection, cleaning, 
 ---
 
 ## 📂 Contents
-- **Certificate.pdf** –  
+- **Certificate.pdf** – https://github.com/Imhritik000/Certificate/blob/main/Ducat%20Certificate.pdf 
 
 ---
 
